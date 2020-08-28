@@ -1,2 +1,1 @@
-
-Yuri Placido 1904177
+Isaque Ribeiro 1903978
